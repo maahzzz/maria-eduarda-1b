@@ -13,3 +13,5 @@ meu nome é maria eduarda bento
 você pode entrar em contato comigo 💌
 
 00001139606396sp@al.educacao.sp.gov.br
+
+![](https://acegif.com/wp-content/uploads/2021/4fh5wi/welcome-5.gif)
