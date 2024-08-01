@@ -1,6 +1,6 @@
 olá, bem vindo(a) ao meu perfil... 💖
 
-meu nome é maria eduarda bento
+meu nome é **maria eduarda bento**
 
 - estou estudando na Alura
 
